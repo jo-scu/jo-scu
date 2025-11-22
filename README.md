@@ -1,8 +1,5 @@
 
 
-
-![Ibuprofeno](https://github.com/NotIbuprofeno.png) 
-
 # **NotIbuprofeno** 
 
 ![SemenEnMiBoca](https://www.fg-a.com/flags/argentina-flag-animated.gif)
