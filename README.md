@@ -5,7 +5,6 @@
 ![SemenEnMiBoca](https://www.fg-a.com/flags/argentina-flag-animated.gif)
 
 
-*Creator of [555 Gang](https://dsc.gg/Silk-road)*  
 *Cheat Detector*  
 *Professional skid*
 ---
