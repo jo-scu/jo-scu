@@ -1,12 +1,12 @@
 
 
-# **NotIbuprofeno** 
+# **Rod** 
 
 ![SemenEnMiBoca](https://www.fg-a.com/flags/argentina-flag-animated.gif)
 
 **REDES SOCIALES**
 
-[![Instagram](https://img.shields.io/badge/Instagram-E4405F?style=for-the-badge&logo=instagram&logoColor=white)](https://www.instagram.com/j0scu)
+[![Instagram](https://img.shields.io/badge/Instagram-E4405F?style=for-the-badge&logo=instagram&logoColor=white)](https://www.instagram.com/joscuu)
 [![Discord](https://img.shields.io/badge/Discord-7289DA?style=for-the-badge&logo=discord&logoColor=white)](https://discord.com/users/1410712359000871024)
 
 
